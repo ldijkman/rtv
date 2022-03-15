@@ -18,3 +18,5 @@ thats why the west is sanctioning you russian people
 the world should block everything to russia 
 
 till puttin is gone
+
+# yandex you suck, tell the russian people the truth
