@@ -1,2 +1,20 @@
 
 # Get rid of Putins TV control
+
+you in russia are not seeing the truth on telivision
+
+putin started a war in ukraine
+
+putin started a genocide targeting civilion mollesting everything in ukraine
+
+millions of ukrenian elderly women and children are on the run in freezing temp with no water or food to poland and other countries
+
+putin is blocking food to kiev and other cities
+
+putin is a criminal
+
+thats why the west is sanctioning you russian people
+
+the world should block everything to russia 
+
+till puttin is gone
