@@ -9,7 +9,7 @@ putin started a genocide targeting civilion mollesting everything in ukraine
 
 millions of ukrenian elderly women and children are on the run in freezing temp with no water or food to poland and other countries
 
-3.000.000 3 milloin peaple ar on the run fleeing ukraine becaause of puttin bombarding ukranian cities
+3.000.000 == 3 milloin people are on the run fleeing ukraine because of puttin bombarding ukranian cities
 
 putin is blocking food to kiev and other cities
 
