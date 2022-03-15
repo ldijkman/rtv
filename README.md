@@ -1,7 +1,7 @@
 
 # Get rid of Putins TV control
 
-you in russia are not seeing the truth on telivision
+you in russia are not seeing the truth on telivision or internet
 
 putin started a war in ukraine
 
