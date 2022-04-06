@@ -15,6 +15,8 @@ putin is blocking food to kiev and other cities
 
 putin is a criminal
 
+<img src="https://github.com/ldijkman/randomnerd_esp32_wifi_manager/blob/main/img_1_1649085291012.jpg">
+
 thats why the west is sanctioning you russian people
 
 the world should block everything to russia 
